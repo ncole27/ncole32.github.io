@@ -1,1 +1,0 @@
-# ncole32.github.io
